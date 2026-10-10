@@ -2,16 +2,16 @@
 
 <img width="1000" height="70" alt="Image" src="https://github.com/user-attachments/assets/77165606-a7fb-4eb1-bda3-5dde83294f5f" />
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ  $${\color{darkred}hello \space , \space my \space name \space is \space north}$$
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; $${\color{darkred}hello \space , \space my \space name \space is \space north}$$
 
   ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤ 
    ㅤㅤㅤ ㅤ $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ ㅤ
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/744126fa-1db3-4569-9f2c-38bbd630b421" />
+<img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/744126fa-1db3-4569-9f2c-38bbd630b421" />
 
-  ㅤㅤㅤ ㅤ  ㅤㅤㅤ ㅤㅤ ㅤ ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=830000&width=435&lines=Run+far.+away+from+here.;theres+nothing+here+for+you.)](https://git.io/typing-svg)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=830000&width=435&lines=Run+far.+away+from+here.;theres+nothing+here+for+you.)](https://git.io/typing-svg)
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0e9e85f3-9675-444e-8acd-33457eaac029" />    ㅤ ㅤ ㅤ  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5cf16e44-71ec-4533-b20d-22062d76bf66" />  ㅤ ㅤ ㅤ  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e63fccea-3100-4d2e-a831-9791ab2fb3fe" />
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/0e9e85f3-9675-444e-8acd-33457eaac029" />    ㅤ ㅤ ㅤ  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/5cf16e44-71ec-4533-b20d-22062d76bf66" />  ㅤ ㅤ ㅤ  <img width="99" height="56" alt="Image" src="https://github.com/user-attachments/assets/e63fccea-3100-4d2e-a831-9791ab2fb3fe" />
 
 
 
