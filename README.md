@@ -22,5 +22,41 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=830000&width=435&lines=++)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=830000&width=435&lines=++)](https://git.io/typing-svg)
-<summary> ${{\color{#FFA5A1} ᛝ⏖}}$ ${{\color{#f9f0b1} Int + Byi!}}$
-</summary> ${{\color{#FEEC79} INT \space anyone \space just \space dont \space be \space weird \space ok? }}$
+
+<details>
+<summary><center><b>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;~ important!</b></center></summary>
+<br>
+
+> <p align="center">$\color{#8B0000}{\textit{im a multishipper, idm any ships aslong it isnt weird}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\text{idm any flirting, aslong you dont cross the line : youre fine}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{i might talk, i might not. usualy it means im offtab or just focusing on other things}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\text{i dont like any criticism. i recommend saying criticism to me kindly}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{dont expect me to agree with you, i may have from disagreements and i might say it rudely, so please tell me when i do}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{DONT say any character hate to me. i hate it}}$</p>
+</details>
+
+<details>
+<summary><center><b>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;~ DNI + byi!</b></center></summary>
+<br>
+
+> <p align="center">$\color{#8B0000}{\textit{proshippers, incest, toxic as hell, toxic shippers, 18-20 are thin ice/iwc, double fadora[thin ice], basic dni}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\text{do not correct me whenever i made a typo}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{dont expect me to keep my promisessss ,,,,,}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\text{ignoring when im  lit trying to talk to u.... dnidnidni}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{please dont take any of my jokes srsly/soft people fear me/j}}$</p>
+> 
+> <p align="center">$\color{#8B0000}{\textit{dont forse me to do anything i dont want}}$</p>
+</details>
+
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <img width="350" height="19" alt="Image" src="https://github.com/user-attachments/assets/c5cf678b-12e1-4719-9675-fcb1f0873108" />
+<img width="1000" height="45" alt="Image" src="https://github.com/user-attachments/assets/2adf40e1-84f3-42e5-8d78-7b50bcc50e01" />
+
