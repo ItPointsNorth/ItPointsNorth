@@ -7,7 +7,7 @@
   ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤ 
 ㅤㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ   ㅤ  ㅤ    ㅤ      ㅤ     ㅤ    ㅤ    $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ ㅤ
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ ㅤ ㅤ ㅤ ㅤ
-ㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ ㅤ   ㅤㅤ ㅤ    ㅤ     ㅤ ㅤ      ㅤ     ㅤ   ㅤ ㅤ    <img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/744126fa-1db3-4569-9f2c-38bbd630b421" />
+ㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ ㅤ   ㅤㅤ ㅤ    ㅤ     ㅤ ㅤ      ㅤ   ㅤ ㅤ    <img width="250" height="231" alt="Image" src="https://github.com/user-attachments/assets/744126fa-1db3-4569-9f2c-38bbd630b421" />
 
 ㅤ   ㅤ ㅤ   ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ   ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ   [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=830000&width=435&lines=Run+far.+away+from+here.;theres+nothing+here+for+you.)](https://git.io/typing-svg)
 
