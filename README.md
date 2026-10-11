@@ -11,8 +11,10 @@
 
 <br>
 ㅤ ㅤ   ㅤ ㅤ
+
   ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤ 
- ㅤ         ㅤ         ㅤ         ㅤ  ㅤ          ㅤ        ㅤ          ㅤ          ㅤ              ㅤ        $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ ㅤ
+ ㅤ         ㅤ         ㅤ         ㅤ  ㅤ          ㅤ        ㅤ          ㅤ          ㅤ              ㅤ        $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ 
+ ㅤ
 <br>
 
 
