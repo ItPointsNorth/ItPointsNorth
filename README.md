@@ -5,7 +5,7 @@
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;    ㅤ      ㅤ     ㅤ    ㅤ ㅤ ㅤ  ㅤ   ㅤ    $${\color{darkred}hello \space , \space my \space name \space is \space north}$$
 
   ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤ 
- ㅤ         ㅤ         ㅤ         ㅤ  ㅤ          ㅤ               ㅤ        $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ ㅤ
+ ㅤ         ㅤ         ㅤ         ㅤ  ㅤ          ㅤ        ㅤ          ㅤ          ㅤ              ㅤ        $${\color{darkgray}any \space name \space other \space than \space north \space is \space ok}$$ ㅤ
 <br>
 
 
