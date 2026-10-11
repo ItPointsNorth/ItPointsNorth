@@ -85,7 +85,7 @@
 > 
 > <p align="center">$\color{#8B0000}{\textit{please dont take any of my jokes srsly/soft people fear me/j}}$</p>
 > 
-> <p align="center">$\color{#8B0000}{\textit{dont forse me to do anything i dont want}}$</p>
+> <p align="center">$\color{#8B0000}{\textit{dont force me to do anything i dont want}}$</p>
 </details>
 
 <br>
